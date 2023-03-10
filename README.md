@@ -1,6 +1,9 @@
 # Sans-Undertale
-//same sans in different universe
+### Sans sprite in different universe
+
+[Sprite 1]
 ![](kindpng_1565165.png)
-say hi to him and give a fuc
+[Sprite 2]
 ![](20230129_182424.png)
-what he is looking at-
+
+#### "Never run a Genocide Run or he will turn like Sprite 1"
