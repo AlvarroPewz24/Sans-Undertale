@@ -1,9 +1,11 @@
 # Sans-Undertale
 ### Sans in different universe
 
-[Sans 1]
+[what)
 ![](kindpng_1565165.png)
-[Sans 2]
-![](20230129_182424.png)
+bey
 
-#### "Never run a Genocide Run or he will turn like Sprite 1"
+(gay
+![](20230129_182424.png)
+what the hell he is lookin at
+
