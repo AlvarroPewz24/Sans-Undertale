@@ -1,9 +1,9 @@
 # Sans-Undertale
-### Sans sprite in different universe
+### Sans in different universe
 
-[Sprite 1]
+[Sans 1]
 ![](kindpng_1565165.png)
-[Sprite 2]
+[Sans 2]
 ![](20230129_182424.png)
 
 #### "Never run a Genocide Run or he will turn like Sprite 1"
